@@ -1,0 +1,2 @@
+# gujinyu.github.io
+Mypage
